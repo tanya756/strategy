@@ -1,1 +1,1 @@
-# kgiWedTemplate 凱證活動頁template
+# strategy2024展望未來
